@@ -1,0 +1,1 @@
+# kata-sendi-nama-tatawangsa
